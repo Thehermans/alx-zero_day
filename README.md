@@ -1,1 +1,1 @@
-This is whst we call the survival of the fitters
+This is what we call the survival of the fitters
